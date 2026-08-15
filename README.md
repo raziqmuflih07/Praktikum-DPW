@@ -4,4 +4,4 @@
 3. Wellington C. Simangunsong (25071102434)
 4. Sheila Medina Hartono (25071103589)
 
-bismillah ipk 4 aamiin :)
+bismillah ipk 4 aamiin
